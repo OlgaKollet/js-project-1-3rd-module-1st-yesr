@@ -1,1 +1,0 @@
-# js-project-1-3rd-module-1st-yesr
